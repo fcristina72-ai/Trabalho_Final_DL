@@ -68,4 +68,4 @@ A lista completa (10 referências) está no relatório.
 
 ---
 
-*Autor(a): [seu nome] · MCDIA/IDP · 2026*
+*Autor: Flavia Cristina de Sousa Silva Dias Paz· MCDIA/IDP · 2026*
